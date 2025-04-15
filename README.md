@@ -1,2 +1,2 @@
-# Makar Simonov Adrii Fedorov
+# Makar Simonov Andrii Fedorov
 ## 
